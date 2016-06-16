@@ -1,2 +1,2 @@
 # hello_world
-practice tutorial
+smoke weed every day.  
